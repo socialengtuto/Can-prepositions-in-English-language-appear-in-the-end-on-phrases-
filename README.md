@@ -1,0 +1,2 @@
+# Can-prepositions-in-English-language-appear-in-the-end-on-phrases-
+it’s a myth. That one cannot end a sentence with a preposition, is a myth. It’s a myth invented in the late 17th century by linguistic commentators (Henry Fowler called them fetishists) that English ought to follow the rules of Latin grammar. It became a fad, made its way into some of the early mass produced textbooks, and became cannon among schoolteachers seeking simple, easy-to-teach rules with which to help students avoid common pitfalls in language.
